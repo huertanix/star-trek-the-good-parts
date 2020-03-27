@@ -141,7 +141,7 @@ Picks up where Affliction leaves off and finished the story. Also Tucker's back 
 ## In a Mirror, Darkly, Part 1 and 2
 We finally get a fucked up spooky universe score for the intro instead of that stupid country song.
 
-Remember the Mirror universe from TOS and DS9 where everything is the same, but with more evil and bad acting? Remember how the Defiant in TOS (no not the one from DS9) just sort of disappeared into the past slash another dimension and Starfleet was like ¯\_(ツ)_/¯? This episodes explains what happened and we get to see the Tholians for the first time since the 60s, back when they were made of cardboard and glitter. They have limbs now, thanks to computer graphics being a thing in 2005.
+Remember the Mirror universe from TOS and DS9 where everything is the same, but with more evil and bad acting? Remember how the Defiant in TOS (no not the one from DS9) just sort of disappeared into the past slash another dimension and Starfleet was like ¯\\_(ツ)_/¯? This episodes explains what happened and we get to see the Tholians for the first time since the 60s, back when they were made of cardboard and glitter. They have limbs now, thanks to computer graphics being a thing in 2005.
 
 Also the pain tube from beginning of this episode and the mirror universe in general might make an appearance in Star Trek: Discovery (ST:DISCO) so while this arc is filler, it's also a prequel to some DISCO eps (and a sequel to some TOS eps).
 
@@ -150,7 +150,7 @@ ENT was pretty careful to faithfully recreate the Defiant as it would have been 
 ## Demons
 Ugh, they brought the country song intro BACK. 
 
-Some plot holes on why Tucker and T'Pol's baby shower doesn't involve them and is also on the moon. Also, there's no Photoshop or deepfake in the 22nd century but apparently CRISPR is magic by then. We get to see a speed by Colonel Green, from that part of post-WWIII Earth history that Star Trek only mentions in passing (Colonel Green was featured briefly, with no real dialog in one TOS episode, along with Ghengis Khan and Kahless). We see that even after world peace, some of humanity's worst impulses didn't join the ruins of the war. Aside from Green's 21st century eugenics fixation, we see the 22nd century has its own xenophobic tendencies, eerily prescient for a show in 2015 to call out the danger of an "Earth First" attitude.
+Some plot holes on why Tucker and T'Pol's baby shower doesn't involve them and is also on the moon. Also, there's no Photoshop or deepfake in the 22nd century but apparently CRISPR is magic by then. We get to see a speed by Colonel Green, from that part of post-WWIII Earth history that Star Trek only mentions in passing (Colonel Green was featured briefly, with no real dialog in one TOS episode, along with Ghengis Khan and Kahless). We see that even after world peace, some of humanity's worst impulses didn't join the ruins of the war. Aside from Green's 21st century eugenics fixation, we see the 22nd century has its own xenophobic tendencies, eerily prescient for a show in 2005 to call out the danger of an "Earth First" attitude.
 
 Also, Travis's ex is apparently Project Veritas, with similarly bad opsec.... or is she?
 
